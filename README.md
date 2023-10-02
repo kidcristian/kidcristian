@@ -1,7 +1,15 @@
-###BEM VINDOS AO BRAZINO 777
+### BEM VINDOS AO BRAZINO 777
 MAIOR CASA DE APOSTA DO MUNDO AHAHAHAHAHHAHA
+
+aluno Cristian
+
+─ aluno do 1ºano A ─ Estou estudando na Alura
+
 
 CHAMEM LA:
 @kidcristian_
 
-![](https://img.ifunny.co/images/acf0cc6bb91abcce595e7e74d3358543d016338971cc61206f6bfe4dbaddf056_3.jpg)
+### CONTATOS:
+cristian.santos.alves@escola.pr.gov.br
+
+![](https://images.uncyc.org/pt/thumb/0/01/Cassionataca.jpg/640px-Cassionataca.jpg)
