@@ -4,4 +4,4 @@ MAIOR CASA DE APOSTA DO MUNDO AHAHAHAHAHHAHA
 CHAMEM LA:
 @kidcristian_
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.ifunny.co%2Ftags%2Fbrazino777&psig=AOvVaw1Q-ir1RN_YwvItokDFEex2&ust=1696351964610000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKCm29fp14EDFQAAAAAdAAAAABAD).
+![](https://img.ifunny.co/images/acf0cc6bb91abcce595e7e74d3358543d016338971cc61206f6bfe4dbaddf056_3.jpg)
